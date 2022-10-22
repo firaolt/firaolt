@@ -1,1 +1,1 @@
-Hello there, I'm Firaol Tamitu Batu
+Hello there, I'm Firaol Tamitu
